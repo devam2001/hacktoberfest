@@ -13,6 +13,7 @@ Following is the feedback from different attendees:
 - Make connections with people you meet and keep them within your network
 - Talk to more people and understand how you can improve in your skills
 - Stay till the event is over, the fun part is at the ending of the event!
+- I don't know which type of goodies they gave....
 
 ## MEETUP DETAILS
 ### Introduction
